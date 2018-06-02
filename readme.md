@@ -1,3 +1,4 @@
+
 ESTO ES GENIALK ME DUELE LA CABEZA Y TENGO HAMBRE
 hola haciendo pruebas de git hub
 
@@ -17,4 +18,10 @@ superando miedos de cambios e historias para ser un DW PROFESIONAL
 
 
 al fin estoy tranquilizandome y superando el miedo de no aprender, 
+
+
+
+ncjcjncjnj
+
+
 
